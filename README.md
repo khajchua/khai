@@ -1,0 +1,2 @@
+# khai
+linh tinh
